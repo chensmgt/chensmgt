@@ -1,4 +1,5 @@
 ## Hi there new world OK👋
+![girl_face_drawing_tutorial](https://github.com/user-attachments/assets/1650c49c-b11a-4e7e-b350-7d0a8ed3ffeb)
 
 <!--
 **chensmgt/chensmgt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
